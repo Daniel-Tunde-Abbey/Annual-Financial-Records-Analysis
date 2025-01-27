@@ -51,6 +51,17 @@ The Government segment accounted for the highest profit **($11M)** and sales **(
 
 Small Business generated $4M in profit and $42M in sales.
 
+
 **Regional Distribution:**
 
 The United States contributed the highest sales **(21.08%)** followed by Canada **(20.96%).**
+
+
+## Recommendation
+1. Focus should be expanded on the Government and Small Business segments as they show significant profitability and sales potential.
+
+2. There should be increased promotion and cross-selling opportunities for high-performing products such as "Paseo" and "Velo."
+
+3. Underperforming regions should be investigated so as to develop targeted marketing strategies to boost sales.
+
+4. Discount strategies should be optimized to maintain profitability without sacrificing customer acquisition and retention.
